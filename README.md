@@ -1,4 +1,4 @@
-# Dr. Vicente González-Ruiz
+# Dr. Vicente González-Ruiz (Meter en Ridiculum)
 
 ## Open Source Projects
 
